@@ -35,9 +35,8 @@ Civil Engineering Graduate | Geotechnical Engineering | Soil Stabilization Resea
 
 ## 🌐 Connect With Me
 
-[LinkedIn](YOUR_LINKEDIN_LINK)  
-[YouTube](YOUR_YOUTUBE_LINK)  
-[Instagram](YOUR_INSTAGRAM_LINK)
+[LinkedIn](https://www.linkedin.com/in/mohamed-mahmoud-geo)  
+[YouTube](https://www.youtube.com/channel/UCi6azD_qn21Qn6pMVI5kOFg)
 
 ---
 
